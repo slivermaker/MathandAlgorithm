@@ -20,3 +20,5 @@
 ![img](https://dl4.weshineapp.com/gif/20210317/4982f69711dac4c20aa2ad8c5d79af24.gif?f=micro_)
 
 ☆*: .｡. o(≧▽≦)o .｡.:*☆
+........
+太麻烦了，有空上传pdf吧，代码方便，下次多传代码
